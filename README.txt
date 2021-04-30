@@ -136,11 +136,9 @@ In case of any querry please contact on following:
 
 Aditya Jain
 ---------------
-* Mobile: 8770743694, 9630511605 (Whatsapp)
-* Email:  adityaj20@iitk.ac.in, jainaditya017@outlook.com
+* Email:  jainaditya017@gmail.com
 
 Mahi Agrawal
 ---------------
-* Mobile: 8962447694
 * Email: maahi20@iitk.ac.in
 ------------------------------------------------ THANK YOU ------------------------------------------------------------------------------------------------- 
